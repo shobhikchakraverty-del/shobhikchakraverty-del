@@ -16,4 +16,6 @@ I am a Management student specializing in **Human Resources** with a deep focus 
 
 ### 📫 How to reach me:
 * **LinkedIn:** [[Shobhik Chakraverty](https://www.linkedin.com/in/shobhik-chakraverty-3a1790360)]
+
+* 
 * **Location:** Based in India (Open to Global Opportunities)
