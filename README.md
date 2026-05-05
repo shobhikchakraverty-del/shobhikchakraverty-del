@@ -15,5 +15,5 @@ I am a Management student specializing in **Human Resources** with a deep focus 
 * 🔍 Open for Internships/Roles in **HR Analytics & MIS** starting Oct/Nov 2026
 
 ### 📫 How to reach me:
-* **LinkedIn:** [https://www.linkedin.com/in/shobhik-chakraverty-3a1790360]
+* **LinkedIn:** [[Shobhik Chakraverty](https://www.linkedin.com/in/shobhik-chakraverty-3a1790360)]
 * **Location:** Based in India (Open to Global Opportunities)
